@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @daniamorris
-- 👀 I’m interested in the IC and Difinity and art and music
+- 👀 I’m interested in the Internet Computer, web3, art and music.
 - 🌱 I’m always learning
-- 💞️ I’m looking to collaborate on a joyful experience for mankind
+- 💞️ I’m looking to collaborate on a joyful experience for mankind.
 - 📫 How to reach me @DaniaD on twitter
 
 <!---
